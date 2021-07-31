@@ -1,0 +1,2 @@
+# Sintax.rip
+Sintax.rip!
